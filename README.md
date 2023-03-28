@@ -1,1 +1,0 @@
-# Animated-Splash-Screen
